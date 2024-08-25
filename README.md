@@ -42,5 +42,6 @@ pleased with the results.
 For several years now I've returned to music-making in a form that I had last used in 
 undergraduate school: as a trombone player. While in Chicago, I participated in concert
 bands, as well as jazz ensembles. In 2020 we relocated to Columbus, OH to be nearer our
-daughter, who has lived there since 1999 and now has her own family. I continue to work
-remotely for the University of Chicago, and have joined the Dublin Community Wind Ensemble.
+daughter, who has lived there since 1999 and now has her own family, and I continued to work
+remotely for the University of Chicago. In July 2024 I retired from the University of Chicago 
+and am enjoying programming what I want now!
